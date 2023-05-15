@@ -12,7 +12,7 @@ I'm passionate about creating innovative and user-friendly applications that pro
 
 ## 📫 How to Reach Me
 
-You can connect with me on 🐦[Twitter](https://twitter.com/andreiCrisan55), 📱💬Telegram (@andiCrisan), 💼[LinkedIn]([insert LinkedIn link](https://www.linkedin.com/in/andrei-crisan-47388515a/)), or via 📧email andrei.i.crisan@gmail.com. 
+You can connect with me on 🐦[Twitter](https://twitter.com/andreiCrisan55), 📱💬Telegram (@andiCrisan), 💼[LinkedIn](https://www.linkedin.com/in/andrei-crisan-47388515a/), or via 📧email andrei.i.crisan@gmail.com. 
 
 ---
 
